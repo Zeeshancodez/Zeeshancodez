@@ -1,5 +1,5 @@
 # 💫 About Me:
-Eh
+-Cookin meth with codin?
 
 
 ## 🌐 Socials:
@@ -24,4 +24,4 @@ Eh
 ---
 [![](https://visitcount.itsvg.in/api?id=Zeeshancodez&icon=6&color=2)](https://visitcount.itsvg.in)
 
-<!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
+<
