@@ -2,6 +2,8 @@
 -Cookin meth with codin?
 
 
+Website - www.zee-shan.tech
+
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/https://instagram.com/granolahx7z?igshid=OGQ5ZDc2ODk2ZA==)  
 
